@@ -1,0 +1,1 @@
+This directory is restricted by server administrator.
